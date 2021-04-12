@@ -5,4 +5,4 @@
 </p>
 
 
-<p align="center">将个人当作来经营</p>
+<p align="center">用心做好每一件事，将个人当作品牌来经营</p>
